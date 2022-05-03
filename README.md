@@ -2,7 +2,7 @@
 - 👀 I am interested in hack and exploit for 3DS and Wii
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me : Join me on matteothieblemont@gmail.com
+- 📫 How to reach me : Join me on Discord : JustMat#4245
 - Bye
 
 <!---
